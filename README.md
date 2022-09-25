@@ -6,7 +6,7 @@
 
 ### That is not true, anymore. We will hold them accountable.
 
-### Humen has other potentials that has remained unused and unknown by and for the public, for long.
+### Humen has other potentials which have remained unused and unknown by and for the public, for long.
 
 
 ## ** Psychics For Change ** is established by a few of those who have exercised their higher abilities.
