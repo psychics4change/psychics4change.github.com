@@ -9,12 +9,12 @@
 ### Humen has other potentials which have remained unused and unknown by and for the public, for long.
 
 
-## ** Psychics For Change ** is established by a few of those who have exercised their higher abilities.
-This is an open community for all who realized their higher capacities, to join efforts to change the world for better.
+### ** Psychics For Change ** is an open community for all who realized their higher capacities,to join their powers to change the world for better.
+### You are welcome to join or follow, if you are an apprentice or a fan.
 
-## You are welcome to join or follow, if you are an apprentice or a fan.
+### We are a few who have exercised our higher abilities.
 
-## We will add more details and plans.
+## We will add more details and plans soon.
 
 
 
