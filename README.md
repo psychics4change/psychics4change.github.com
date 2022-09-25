@@ -10,7 +10,7 @@
 #### Humen has other potentials which have remained unused and unknown by and for the public, for long.
 
 
-#### __Psychics For Change__ is an open community for all who realized their higher capacities,to join their powers to change the world for better.
+#### __Psychics For Change__ is an open community for all who realized their higher capacities, to join their powers and to change the world for better.
 #### If you are a practitioner of psychic abilities, an apprentice or a fan, and want to help our mission follow us to learn and vote on our plans.
 
 #### To follow us, create a github account and then goto [psychics4change.github.com ](https://github.com/psychics4change) and hit ** follow **
